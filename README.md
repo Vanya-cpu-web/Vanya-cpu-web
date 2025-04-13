@@ -1,4 +1,9 @@
-## Hi there 👋
+## Меня зовут Ваня и у меня есть куча соцсетей в котрые вы можете зайти
+
+
+https://t.me/itsdoom9
+tiktok.com/@tabuu_tenderlybae
+twitch.com/@tabuuvs
 
 <!--
 **Vanya-cpu-web/Vanya-cpu-web** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
