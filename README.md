@@ -2,8 +2,8 @@
 
 
 https://t.me/itsdoom9
-tiktok.com/@tabuu_tenderlybae
-twitch.com/@tabuuvs
+https://tiktok.com/@tabuu_tenderlybae
+https://twitch.com/@tabuuvs
 
 <!--
 **Vanya-cpu-web/Vanya-cpu-web** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
